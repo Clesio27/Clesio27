@@ -28,8 +28,7 @@ business process automation, and cross-functional stakeholder# Engenheiro de Aut
 
 ## 🎯 Disponível para projetos remotos de automação de IA — foco em resultado, não em horas.
 
-📩 clesio27rs@gmail.com | "[@clesio.auto](https://www.tiktok.com/@lojanela.com)".(Instagram/TikTok) ["Linkedin:"]([linkedin.com/in/clésio-ribeiro](https://www.linkedin.com/in/cl%C3%A9sio-ribeiro/))
-
+📩 clesio27rs@gmail.com | "[@clesio.auto](https://www.tiktok.com/@lojanela.com)".(Instagram/TikTok) "[Linkedin:](https://www.linkedin.com/in/cl%C3%A9sio-ribeiro/)"
 🎯 Available for remote IA automation projects — focused on outcomes, not hours.
 
 📩 clesio27rs@gmail.com | @clesio.auto (Instagram/TikTok)
