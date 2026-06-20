@@ -28,7 +28,7 @@ business process automation, and cross-functional stakeholder# Engenheiro de Aut
 
 ## 🎯 Disponível para projetos remotos de automação de IA — foco em resultado, não em horas.
 
-📩 clesio27rs@gmail.com | "[@clesio.auto](https://www.insta_dev/)".(Instagram/TikTok) ["Linkedin:"](linkedin.com/in/clésio-ribeiro)
+📩 clesio27rs@gmail.com | "[@clesio.auto](https://www.tiktok.com/@lojanela.com)".(Instagram/TikTok) ["Linkedin:"](linkedin.com/in/clésio-ribeiro)
 
 🎯 Available for remote IA automation projects — focused on outcomes, not hours.
 
@@ -41,7 +41,7 @@ linkedin.com/in/clésio-ribeiro
 
 
 <p align="left">
-    <a href="https://www.ycom/@larissakich?sub_confirmation=1">
+    <a href="https://www.tiktok.com/@lojanela.com?sub_confirmation=1">
         <img 
             alt="youtube subscribers" 
             title="Inscreva-se no meu canal" 
@@ -203,7 +203,7 @@ linkedin.com/in/clésio-ribeiro
   />
 
 </p>
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 💼 Experience (Based on your memory)
 From your memory, structure these as:
 1. NLP Data Specialist | OneForma · Remote | 2024 – Present  
